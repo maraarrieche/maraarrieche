@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **arrieche.mara@gmail.com**
 
-- ⚡ Fun fact **I really like to play Pádel and Tennis, and watching shows on Netflix. **
+- ⚡ Fun fact: I really like to play Pádel and Tennis🎾, and watching shows on Netflix🎬.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
